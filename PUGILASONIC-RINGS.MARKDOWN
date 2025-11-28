@@ -5,3 +5,6 @@ https://www.roseinside.com/personalized-badge-ring-for-gift?gad_source=4&gad_cam
 
 
 https://shopaydins.com/products/custom-logo-laser-engraved-signet-ring-gold-silver-black?variant=32101077516330&utm_source=google&utm_medium=cpc&utm_campaign=Google+Shopping&currency=USD&country=US&utm_source=google&utm_campaign=&utm_medium=cpc&utm_content=&utm_term=&device=m&product=shopify_US_4607323734058_32101077516330&gad_source=1&gad_campaignid=22453334852&gbraid=0AAAAADNCzqF1NHBJHWHqBIm4xP4_5zjit&gclid=CjwKCAiAraXJBhBJEiwAjz7MZS_S82LThyotv5AkTxWYWYfUQYUEWvGvsKWyaB_MafiBXlp31bz_PRoC93cQAvD_BwE
+
+
+https://www.custompatchfactory.com/
